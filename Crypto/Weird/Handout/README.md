@@ -1,4 +1,4 @@
-# Challenge: Failure
+# Challenge: Weird
 
 > Weird, yet easy!
 
