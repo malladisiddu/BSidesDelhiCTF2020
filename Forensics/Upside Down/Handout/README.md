@@ -1,5 +1,5 @@
 # Challenge - Upside Down:
 
-?yas ot gniyrt si eh tahw dnif u naC .drawrof thgiarts gnihtyna yas ot desu reven eH .semem hguorht segassem gnidnes fo tibah a sah enim fo dneirf dednim driew yM
+My weird minded friend of mine has a habit of sending messages through memes. He never used to say anything straight forward. Can u find what he is trying to say?
 
 Author: s0urbl00d
