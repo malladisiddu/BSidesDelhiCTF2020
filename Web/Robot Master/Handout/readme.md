@@ -2,6 +2,6 @@
 
 > You know what to do, collect them all.
 
-[Link](http://3.7.251.179/)
+[Link](http://15.206.202.26/)
 
 author: Ph03N1X
