@@ -1,6 +1,6 @@
 # Challenge: Log
 
 > Click the right file.
-[Link](http://15.206.202.26/ )
+[Link](http://3.7.251.179/)
 
 author: Ph03N1X
